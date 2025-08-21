@@ -1,2 +1,0 @@
-# Dise-oSotfware.
-DiseñoSotfware. pagina
